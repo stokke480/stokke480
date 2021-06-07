@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @stokke480
+- 👀 I’m interested in anticheats
+- 📫 How to reach me discord Johannes#6966
